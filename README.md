@@ -1,0 +1,1 @@
+# Apowersoft-Screen-Capture-Latest-Patch
